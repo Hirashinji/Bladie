@@ -19,7 +19,7 @@
 
 <div align="center">
 
-!! ratio's husband ( canon ! )
+!! really really love Will Bylers,
 
 </div>
 
